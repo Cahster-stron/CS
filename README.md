@@ -14,3 +14,4 @@
 ││  𝒒𝒖𝒆𝒓 𝒎𝒆 𝒄𝒐𝒏𝒕𝒂𝒕𝒂𝒓?
 ││  ibfsilva@gmail.com
 ༺═──────────────────═༻
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fotakudorgada.tumblr.com%2Fpost%2F36465714657%2Fo-que-as-pessoas-pensam-um-desenho-de-duas&psig=AOvVaw3rR7xOBy9aPR_xH4xmoAho&ust=1715463595600000&source=images&cd=vfe&opi=89978449&ved=0CA8QjRxqFwoTCNCQxYSGhIYDFQAAAAAdAAAAABAE)
